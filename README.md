@@ -1,1 +1,1 @@
-# Websites - time for training
+# Websites - time to practice
